@@ -1,5 +1,5 @@
 ✧･ﾟ: *✧･ﾟ:*
-Hi, I'm Divya! I’m a senior at UW-Madison pursuing a bachelor's degree in Computer Science and Data Science, and I love to work on exciting projects with motivated people. 
+Hi, I'm Divya! I love to work on exciting projects with motivated people. 
 ✧･ﾟ: *✧･ﾟ:*
 
 <!---
